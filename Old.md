@@ -30,7 +30,7 @@
 - On January to February 2025, From Resistencia's City Temperature is too high.
 - On July 2025, I have a Hurt of my Body because i had very cold and it's Coughing, Hard Cough and starting Annoying my Chest because it's a Very Cold by Cough.
 - On July 2025 Important of SkunkPlatform's GoeVer, I have currently G-01 and G-05 is gonna be 2028.
-- On September 2025, It started to learn a Book named 'Culpa Nuestra' on Resistencia. A Book was given on the Location: La Cangayé 450. When i have posted a WhatsApp Status such as 'I have complicated the Writing Text :skull:' (Original Status Text said: 'Me complicó el escribimiento'), So My Brother a 17 years old, It came to go back to the and a Purple Book is gotta be same text char but i had resolved. Also my TikTok Account named @skunkplatformer, I have finally renamed @skunkplatformer to @skunkplatform.
+- On September 2025, It started to learn a Book named 'Culpa Nuestra' on Resistencia. A Book was given on the Location: La Cangayé 450. When i have posted a WhatsApp Status such as 'I have complicated the Writing Text :skull:' (Original Status Text said: 'Me complicó el escribimiento'), So My Brother a 17 years old, It came to go back to the Library Books and a Purple Book is gotta be same text char but i had resolved. Also my TikTok Account named @skunkplatformer, I have finally renamed @skunkplatformer to @skunkplatform.
 - On November 2025, The Website Official 'skunkplatform.netlify.app' is Under Maintenance from 2025 Update.
 - On December 2025, Is coming from SkunkPlatform G-03 to Start Things.
 - SkunkPlatform renamed DiamondPlatform on SkunkPlatform1's Roblox Profile, Now it's called: DiamondPlatform (@SkunkPlatform1). Due to Problems with Profile Search.
@@ -38,3 +38,9 @@
 ## 2026
 - Official Rename of SkunkPlatform as of January 15.
 - Will launch a **SkunkService: The Developer Infinite** as of February 1.
+
+## 2027
+- Creator Birthday's 16 Years old Celebration.
+
+## 2035
+- As of 2030, Will no longer be available for SkunkPlatform and DiamondPlatform. The Cloudy Skunk will be available on 2036.
