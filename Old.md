@@ -33,3 +33,8 @@
 - On September 2025, It started to learn a Book named 'Culpa Nuestra' on Resistencia. A Book was given on the Location: La Cangayé 450. When i have posted a WhatsApp Status such as 'I have complicated the Writing Text :skull:' (Original Status Text said: 'Me complicó el escribimiento'), So My Brother a 17 years old, It came to go back to the and a Purple Book is gotta be same text char but i had resolved. Also my TikTok Account named @skunkplatformer, I have finally renamed @skunkplatformer to @skunkplatform.
 - On November 2025, The Website Official 'skunkplatform.netlify.app' is Under Maintenance from 2025 Update.
 - On December 2025, Is coming from SkunkPlatform G-03 to Start Things.
+- SkunkPlatform renamed DiamondPlatform on SkunkPlatform1's Roblox Profile, Now it's called: DiamondPlatform (@SkunkPlatform1). Due to Problems with Profile Search.
+
+## 2026
+- Official Rename of SkunkPlatform as of January 15.
+- Will launch a **SkunkService: The Developer Infinite** as of February 1.
