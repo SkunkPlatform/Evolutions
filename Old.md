@@ -43,4 +43,4 @@
 - Creator Birthday's 16 Years old Celebration.
 
 ## 2035
-- As of 2030, Will no longer be available for SkunkPlatform and DiamondPlatform. The Cloudy Skunk will be available on 2036.
+- As of 2035, Will no longer be available for SkunkPlatform and DiamondPlatform. The Cloudy Skunk will be available on 2036.
